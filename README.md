@@ -1,4 +1,4 @@
-# mira-vale-social
+# eveline-clarince-social
 
 Imaginile postărilor Instagram @evelineclarince. Eveline Clarince e un personaj fictiv, generat integral cu AI; nu reprezintă o persoană reală.
 
